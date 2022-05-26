@@ -16,3 +16,9 @@ ESim Brand :
 | RedteaGO | [Link](https://link.voxhost.fr/QQkwRX) | $2 Of Free credit
 | YesSim | [Link](https://link.voxhost.fr/CznsDf) | 2€ Of Free credit
 | DENT | [Link](https://link.voxhost.fr/kak2En) | 1GB Of Free Data
+
+Dating App :
+
+| Name | Link |Benefice|
+|--|--|--|
+| Tinder | [Link](https://link.voxhost.fr/kGy3FT) | 25 Free SuperLike
