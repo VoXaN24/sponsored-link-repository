@@ -13,5 +13,6 @@ Hosting Brand :
 ESim Brand :
 | Name | Link |Benefice|
 |--|--|--|
-| RedteaGO | [Link](https://link.voxhost.fr/QQkwRX) | $2 Of free credit
-| YesSim | [Link](https://link.voxhost.fr/CznsDf) | 2€ Of free credit
+| RedteaGO | [Link](https://link.voxhost.fr/QQkwRX) | $2 Of Free credit
+| YesSim | [Link](https://link.voxhost.fr/CznsDf) | 2€ Of Free credit
+| DENT | [Link](https://link.voxhost.fr/kak2En) | 1GB Of Free Data
